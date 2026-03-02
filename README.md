@@ -1,6 +1,6 @@
 # 👋 Hey there! I'm Riley Thornton (Abufrank)
 
-Welcome to my little corner of the internet! 🌟
+Welcome to my little corner of the internet!
 
 ## 🚀 About Me
 
